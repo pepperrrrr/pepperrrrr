@@ -7,4 +7,4 @@ Frontend engineer with 7+ years building international E-commerce platforms.
 - 🌍 Bilingual EN/Arabic · RTL layout · SEO · fully remote
 - 💬 Building small projects here to share what I enjoy working on
 
-📫 pepperdx@163.com
+📫 pepperdxxx@gmail.com
